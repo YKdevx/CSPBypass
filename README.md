@@ -37,5 +37,5 @@ Help improve CSPBypass.com by contributing today! We look forward to your pull r
 
 ## Contact
 
-For any inquiries, reach out to [@renniepak on X](https://x.com/renniepak).
+For any inquiries, reach out to [@renniepak on Linkedin](www.linkedin.com/in/yousef-khani-b50778415).
 
